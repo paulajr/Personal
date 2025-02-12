@@ -1,4 +1,4 @@
-# Personal
+# personal
 Description
 
 🔎 About Me
